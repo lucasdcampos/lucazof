@@ -1,10 +1,4 @@
-## About Me:
 
-- 🕵️‍♂️**Name:** lucazof (Lucas Campos)
-- ⌛**Age:** 16
-- 🌍**Location:** South America, Brazil - SP
-
- 🔔**Social Media:**
 
 - 👾**Discord:** lucasof#2261 ([or join my server](https://discord.gg/h3uekT7))
 - 🐟**Twitter:** [lucazof](twitter.com/lucazof)
